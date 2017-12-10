@@ -1,3 +1,3 @@
-# theoldpaints.github.io
-The Old Paints website
- Andy is a supa cool god like figure
+# Website Under Construction
+## The Old Paints website
+## coming soon to an internet near you!
